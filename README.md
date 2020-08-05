@@ -7,4 +7,4 @@
 I am Shubham, I write code for living.
 
 - :office: I work at an early stage SaaS startup.
-- 📫 Always eager to discuss ideas, if you have one, feel free to reach me at [shbhshs0@gmail.com](shbhshs0@gmail.com)
+- 📫 Always eager to discuss ideas, if you have one, feel free to reach me at [shubham08singh10@gmail.com](shubham08singh10@gmail.com)
